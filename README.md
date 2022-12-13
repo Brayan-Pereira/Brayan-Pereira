@@ -1,7 +1,7 @@
 ### Oi tudo bem? 👋
 
 - 🌱 Estudando programação
-- 👯 Trabalhando com freelancer
+- 👯 Buscando oportuni
 - 😄 Pronouns: ele/dele
 
 
