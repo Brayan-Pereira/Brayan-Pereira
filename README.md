@@ -2,7 +2,6 @@
 
 - 🌱 Estudando programação
 - 👯 Buscando oportuni
-- 😄 Pronouns: ele/dele
 
 
 
