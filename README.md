@@ -1,7 +1,7 @@
 ### Oi tudo bem? 👋
 
 - 🌱 Estudando programação
-- 👯 Buscando oportuni
+- 👯 Buscando oportunidades
 
 
 
